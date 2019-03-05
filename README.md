@@ -7,21 +7,14 @@ af
 fds
 adfsdsfdppads
 
-adsfơ]fda[psfasdf
-dsaffdsds
-fs
-adfssd
-fds
+dfadfadsf
 
-adsfkladsfja
-dsf
-adsfkladsfja
-ád
-dfsa
-dsf
-fdas
-dfsadsaf
-dsaf
+asdf
+adsfsdfa
+dfs
+dsafdsf
 
+sdaf
+dfsasd
 adsfsdfa
 
